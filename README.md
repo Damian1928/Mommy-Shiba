@@ -1,0 +1,2 @@
+# Mommy-Shiba
+Mommy Shiba wants to feed everyone with $SHIB rewards every 60 minutes! Mommy Shiba has been taking care of SHIBA since her early days and just wanted to let the world know she exists. Mommy Shiba is cared by dedicated SHIB holders wanting to give back appreciation. Her baby is doing really well right now with the help of everyone. Now Mommy Shiba is getting old and she needs people to take care of her too.
